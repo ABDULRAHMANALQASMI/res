@@ -1,2 +1,0 @@
-# res
-Abdulrahman Alqasmi page
